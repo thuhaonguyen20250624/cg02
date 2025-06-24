@@ -43,7 +43,7 @@
 
 点击访问：<a href="https://pi11-1.pages.dev/">黑料社</a>
 
-点击访问：<a href="https://pi369.pages.dev/>51吃瓜网</a>
+点击访问：<a href="https://pi369.pages.dev/">51吃瓜网</a>
 
 主要内容：
 
